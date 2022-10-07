@@ -43,3 +43,6 @@
 11. Vet de ovenschaal in met een beetje olie of boter.
 12. Giet een klein beetje van de tomatensaus op de bodem. Leg hier 3 lasagnevellen op. Schep hier een beetje tomatensaus op en verdeel hier wat bechamelsaus over. Leg hier een paar plakjes mozzarella op. Dek af met lasagnebladen en herhaal dit tot de ingrediënten op zijn en eindig met een laag tomatensaus, bechamelsaus en mozzarella.
 13. Bestrooi de lasagne bolognese met de geraspte kaas en zet 45 minuten in de oven.
+
+
+###### Opdr van Tussenbeoordeling
